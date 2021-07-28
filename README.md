@@ -1,3 +1,3 @@
 !eltrut desrever a deretnuocne uoY -
-yrtsunim syalp yllausU -
+yrtsudnim syalp yllausU -
 !ereHyddeS#9188 :drocsiD -
